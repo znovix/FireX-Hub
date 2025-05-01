@@ -1,2 +1,0 @@
-# FireX-Hub
-piroka
